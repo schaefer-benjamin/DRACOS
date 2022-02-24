@@ -19,6 +19,7 @@ You can also visit the group's website at KIT, here: [https://www.iai.kit.edu/en
 We are constantly looking for passionate people to extend our team. 
 
 TWO OPEN PHD POSITIONS:
+
 [https://www.pse.kit.edu/karriere/joboffer.php?id=41032&language=en&new=true](https://www.pse.kit.edu/karriere/joboffer.php?id=41032&language=en&new=true)
 [https://www.pse.kit.edu/karriere/joboffer.php?id=41033&language=en&new=true](https://www.pse.kit.edu/karriere/joboffer.php?id=41033&language=en&new=true)
 
