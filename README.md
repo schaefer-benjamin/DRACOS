@@ -16,7 +16,13 @@ You can also visit the group's website at KIT, here: [https://www.iai.kit.edu/en
 
 ## Positions
 
-We are constantly looking for passionate people to extend our team. If you are interested in conducting a thesis for your Bachelor, Master, PhD or a Postdoc, please get in touch and we can discuss options. Before reaching out, consider potential funding options from the list below and check out our research profile, based on the highlighted articles below.
+We are constantly looking for passionate people to extend our team. 
+
+TWO OPEN PHD POSITIONS:
+[https://www.pse.kit.edu/karriere/joboffer.php?id=41032&language=en&new=true](https://www.pse.kit.edu/karriere/joboffer.php?id=41032&language=en&new=true)
+[https://www.pse.kit.edu/karriere/joboffer.php?id=41033&language=en&new=true](https://www.pse.kit.edu/karriere/joboffer.php?id=41033&language=en&new=true)
+
+If you are interested in conducting a thesis for your Bachelor, Master, PhD or a Postdoc, please get in touch and we can discuss options. Before reaching out, consider potential funding options from the list below and check out our research profile, based on the highlighted articles below.
 
 PhD funding: 
 Aside from positions posted here, we encourage you to apply for fellowships and stipends, e.g. by   
