@@ -23,8 +23,8 @@ We are constantly looking for passionate people to extend our team.
 At the moment, we have 2 positions (Phd student/Postdoc) in machine learning for energy systems
 
 Submit any applications via the KIT-Portal:
-https://www.pse.kit.edu/english/karriere/joboffer.php?id=91352&new=true
-https://www.pse.kit.edu/english/karriere/joboffer.php?id=91353&new=true
+[https://www.pse.kit.edu/english/karriere/joboffer.php?id=91352&new=true](https://www.pse.kit.edu/english/karriere/joboffer.php?id=91352&new=true)
+[https://www.pse.kit.edu/english/karriere/joboffer.php?id=91353&new=true](https://www.pse.kit.edu/english/karriere/joboffer.php?id=91353&new=true)
 (Application Deadline: 30.11.2022; early applications highly encouraged)
 
 
