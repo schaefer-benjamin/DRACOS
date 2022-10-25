@@ -18,6 +18,15 @@ You can also visit the group's website at KIT, here: [https://www.iai.kit.edu/en
 
 We are constantly looking for passionate people to extend our team. 
 
+*TWO OPEN POSITIONS*
+At the moment, we have 2 positions (Phd student/Postdoc) in machine learning for energy systems
+
+Submit any applications via the KIT-Portal:
+https://www.pse.kit.edu/english/karriere/joboffer.php?id=91352&new=true
+https://www.pse.kit.edu/english/karriere/joboffer.php?id=91353&new=true
+(Application Deadline: 30.11.2022; early applications highly encouraged)
+
+
 If you are interested in conducting a thesis for your Bachelor, Master, PhD or a Postdoc, please get in touch and we can discuss options. Before reaching out, consider potential funding options from the list below and check out our research profile, based on the highlighted articles below.
 
 PhD funding: 
